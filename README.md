@@ -113,5 +113,5 @@ Yes. We provide wholesale charcoal foam packaging solutions throughout Fullerton
 
 ## Get Started Today
 
-If you need to **buy charcoal foam sheets bulk**, order **custom protective charcoal foam inserts**, or source [**wholesale charcoal foam sheets in Fullerton**](https://www.bluerosepackaging.com/location/brea/buy-wholesale-charcoal-foam-packaging-near-me-in-brea/), bluerose packaging delivers durable, cost-effective cushioning solutions tailored to your business needs.
+If you need to **buy charcoal foam sheets bulk**, order **custom protective charcoal foam inserts**, or source [**wholesale charcoal foam sheets in Fullerton**](https://www.bluerosepackaging.com/location/fullerton/buy-wholesale-charcoal-foam-sheets-near-me-in-fullerton/), bluerose packaging delivers durable, cost-effective cushioning solutions tailored to your business needs.
 
